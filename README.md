@@ -44,3 +44,6 @@ remember you DID do something wrong and YOU DID affect people. Admit to it.
 	
 ## CONCLUSION
 If all this has been done and they still do not forgive you, let it go. You should spend time trying to convince someone. Just work at yourself and become better.
+
+## ADDENDUM FOR THE FORK I ACCIDENTALLY MADE
+If you are a large voice, amplify the voices of those you're apologizing to, not only on this issue, but in general. If they need attention on a project or something, put some spotlight on it. This isn't necessarily the same as making it up to them, but it still shows you care about the people you're apologizing to.
